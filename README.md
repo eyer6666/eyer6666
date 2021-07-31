@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @eyer on tikok
+- 👀 I’m interested in game exploitation
+- 📧 Discord : eyer#6666
